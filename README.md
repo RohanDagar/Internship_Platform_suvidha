@@ -1,1 +1,0 @@
-# Internship_Platform_suvidha
